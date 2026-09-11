@@ -6,7 +6,7 @@ Tirur | mkshilpa743@gmail.com
 
 ## SUMMARY
 
-Dedicated individual who is always open to working in a challenging environment that provides open handed opportunities to employ my adroitness towards bestowing the organizational objectives, while further reinforcing my professional and personal development. Seeking challenging assignments in Project Management/ Civil Construction.
+Passionate Civil Engineer with construction experience in site supervision, project coordination, quality and quantity analysis, and ensuring safety standards.
 
 ## EDUCATION
 
