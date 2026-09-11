@@ -1,10 +1,8 @@
-
+# ABOUT ME
 SHILPA M K
 Civil Engineer
 
-shilpa-m-k-44b3b0246
-
-Tirur | +91 7592085737 | mkshilpa743@gmail.com
+Tirur | mkshilpa743@gmail.com
 
 ## SUMMARY
 
@@ -13,10 +11,10 @@ Dedicated individual who is always open to working in a challenging environment 
 ## EDUCATION
 
 ### Vidya Academy of Science and Technology, Thrissur
-**Bachelor of Technology - Civil Engineering** | 2019-2022 | CGPA: 7.92
+**Bachelor of Technology - Civil Engineering** | 2019-2022 
 
 ### SSM Polytechnic College, Tirur
-**Diploma - Civil Engineering** | 2016-2019 | SGPA: 8.2
+**Diploma - Civil Engineering** | 2016-2019 
 
 ## EXPERIENCE
 
